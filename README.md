@@ -2,4 +2,4 @@
 
 xd
 
-Haha
+nie smiej sie kurwa
